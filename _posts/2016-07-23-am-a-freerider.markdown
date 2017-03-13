@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "I am a freeriders"
+title:  "I am a freerider"
 date:   2016-07-19 11:49:45 +0200
 categories: jekyll update
 ---
