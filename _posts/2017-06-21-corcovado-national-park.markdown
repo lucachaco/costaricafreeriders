@@ -1,0 +1,5 @@
+# A Wild Adventure. 
+Natural and Wild; Corcovado will always surprise and amazed you with its landscapes, so much wildlife, the tropical rain forest and more.  
+No matter if you go for a 2 or 3 day Tour, the intensity of this place will change your way to see nature and will make you feel more connected to every part of it. 
+Puerto Jimenez has become the principal entrance for those who want the real Hiking Wild experience, starting the trip early in the morning we drive for 2 hours spotting animals and passing through some parts of  primary forest to finally get to carate where the 21 kms hike starts (7-8 hours) with the most paradise beaches are,  crossing 3 different rivers and many creeks, hiking most of the time inside the jungle but doing some beach parts as well. 
+Once in Sirena station you have the opportunity to do the trails around of it and the wildest river of Costa Rica: Sirena river where sharks, crocodiles, Tapirs and so much more animals interact every day to finish the tour choosing any of the trails
