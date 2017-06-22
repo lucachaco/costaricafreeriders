@@ -9,3 +9,5 @@ Better pics soon and also the description of a really strange, dangerous and int
 
 
 Check out this [page][about] for more info on how to hire me for your tours in Costa Rica 
+
+[about]: http://www.costaricafreeriders.com/about/
