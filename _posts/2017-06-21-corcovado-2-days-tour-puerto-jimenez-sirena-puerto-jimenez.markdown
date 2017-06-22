@@ -22,6 +22,11 @@ In this Tropical Rain Forest, the rain of course is always a possibility, to loo
 <p>
 Like I said: An intense wild hike, full of wildlife, wonderful scenarios and so many Adventures I can tell you is definitely one of my favorites hikes and a great Freeriding Time.
 </p>
+<p>
+Check out this [page][about] for more info on how to hire me for your tours in Costa Rica 
+</p>
+
+[about]: http://www.costaricafreeriders.com/about/
 
 <img style="width:100%" src="https://raw.githubusercontent.com/lucachaco/costaricafreeriders/gh-pages/assets/WhatsApp%20Image%202017-04-06%20at%2010.22.18%20AM.jpeg" />
 
