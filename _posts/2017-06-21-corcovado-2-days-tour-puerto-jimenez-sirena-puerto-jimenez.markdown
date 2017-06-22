@@ -19,3 +19,5 @@ In this Tropical Rain Forest, the rain of course is always a possibility, to loo
 <p>
 Like I said: An intense wild hike, full of wildlife, wonderful scenarios, and so many Adventures, I can tell you is definitely one of my favorites hikes and a great Freeriding Time.
 </p>
+
+<img style="width:100%" src="https://raw.githubusercontent.com/lucachaco/costaricafreeriders/gh-pages/assets/WhatsApp%20Image%202017-04-06%20at%2010.22.18%20AM.jpeg" />
