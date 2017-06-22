@@ -1,3 +1,4 @@
+<br>
 <p>
 The intense wild hiking: Starting early in the morning from Puerto Jimenez, we drive for almost 2 hours spotting animals on our way to Carate where the 21 kms hike starts. Leona station is located at the 3rd km and it is here where we enter the park and say goodbye to drinkable water, toilets and civilization. From there we cross many rivers and creeks, follow trails through the forest and beach, and are amazed by different landscapes and animals. Finally, we arrive at Sirena station where a nice shower and bed will be waiting for us. Dinner, snacks and drinks will be available to buy. 
 </p>
