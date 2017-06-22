@@ -27,7 +27,6 @@ Like I said: An intense wild hike, full of wildlife, wonderful scenarios and cou
 
 <img style="width:100%" src="https://raw.githubusercontent.com/lucachaco/costaricafreeriders/gh-pages/assets/WhatsApp%20Image%202017-05-28%20at%205.10.30%20AM.jpeg" />
 
-<img style="width:100%" src="https://raw.githubusercontent.com/lucachaco/costaricafreeriders/gh-pages/assets/WhatsApp%20Image%202017-05-25%20at%2012.20.37%20PM.jpeg" />
 
 
 
